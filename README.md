@@ -1,1 +1,0 @@
-# Mrigank-Pandeys-Infosis-internship
